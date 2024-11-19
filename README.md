@@ -1,4 +1,4 @@
-# MLBB Magic Core APK 1.8.21 (Latest Version) Free Download 2024'
+# MLBB Magic Core APK 1.8.21 (Latest Version) Free Download 2024
 # Download Android APK: [MLBB Magic Core APK](https://apkhihe.net/mlbb-magic-core/)
 # What is MLBB Magic Core Game?
 
